@@ -63,13 +63,27 @@ Here are some things I'd love to receive.
 
 ---
 
-## 💍 Jewelry
+## 🎀 Accessories
 
+### Jewelry
 - [Iggy Necklace & Earrings](https://www.xrage-nakama.com/products/bolu-erhuan)
 - [Pen Necklace & Earrings](https://www.xrage-nakama.com/products/anblb-necklace)
 - [Cat Bracelet](https://www.xrage-nakama.com/products/cat-bracelet)
 - [JoJo Bracelet](https://www.xrage-nakama.com/products/jotaro-bracelet)
 
+### Rings - smth in these styles, not these specifically
+- [Articulated Armor Ring](https://www.etsy.com/listing/120449036/articulated-armor-ring-adjustable-bronze?ref=sr_gallery_6&ga_ex=etsy_finds&ga_utm_source=etsy_finds&ga_utm_medium=email&ga_utm_campaign=etsy_finds_020313_4540242424_0&ga_link_clicked=83&ga_redirect=1&ga_filters=ring+jewelry+-supplies+metalwork&ga_page=2&ga_search_type=all&ga_view_type=gallery&utm_source=Pinterest&utm_medium=organic&epik=dj0yJnU9LXRfMmk5QkhrZHlRallueHMzSlVrbW1ELW5kcFJpU2cmcD0wJm49Rk13aFVKMHV2Nk5KUDRMMGdCeF9oUSZ0PUFBQUFBR25yMmtF)
+- [Gold curb chain ring - as vrea pe silver color](https://www.karenmorrisonjewellery.co.uk/products/gold-chain-ring?variant=42506179870831&country=GB&currency=GBP&utm_medium=product_sync&utm_source=google&utm_content=sag_organic&utm_campaign=sag_organic)
+
+### Sunglasses - smth in these styles, not these specifically
+- [Hexagonal Polarized Sunglasses (Negru)](https://www.emag.ro/ochelari-de-soare-polarizati-unisex-hexagonali-negru-p1555c1/pd/DYDFKNYBM/)
+- [Prada Square-Frame Acetate Sunglasses(smaller frame)](https://www.mrporter.com/en-it/mens/product/prada-eyewear/accessories/square-frame/square-frame-acetate-sunglasses/46376663163072518)
+
+### Belts *(must have detachable buckles) - smth in these styles, not these specifically*
+- [Brass buckle belt with flower pattern – style inspiration](https://www.vinted.ro/items/8739897507-pasek-z-mosiezna-klamra-i-z-wzorami-kwiatowbelt-with-brass-buckle-and-flower-pattern?homepage_session_id=14c6ceaf-7b0b-4b7c-ba19-87ae80d8c738)
+- [Vintage bullet belt – style inspiration](https://www.vinted.ro/items/8608981423-bullet-belt-vintage?referrer=catalog)
+- [Black denim vintage Opium belt – style inspiration](https://www.vinted.ro/items/8739921618-czarny-dzins-vintage-opium-pasekblack-jeans-denim-vintage-opium-belt?referrer=catalog)
+
 ---
 
-✨ *Thanks for looking!*
+✨ *Thanks for looking! Love u*
