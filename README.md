@@ -27,7 +27,7 @@ Here are some things I'd love to receive.
 
 ## 💿 Blu-Ray 4K
 
-- [The Truman Show](https://www.vinted.ro/items/8686780162-bluray-4k-the-truman-show-jim-carrey)
+- [Ghost In The Shell](https://www.vinted.ro/items/8884289893-ghost-in-the-shell-anime-4k-blu-ray-blu-ray)
 - [Once Upon a Time in Hollywood](https://www.vinted.ro/items/8664823361-4k-blu-ray-tarantino-once-upon-a-time-in-hollywood)
 - [Wicked](https://www.vinted.ro/items/8688864844-wicked-4k-blu-ray-movie)
 - [Rear Window](https://www.vinted.ro/items/7633693071-rear-window-4k-ultra-hd-blu-ray-like-new)
@@ -47,6 +47,14 @@ Here are some things I'd love to receive.
 
 - [Encanto (soundtrack)](https://www.vinted.ro/items/7313281087-winyl-encanto-j-ang)
 - [Disco Elysium – British Sea Power](https://soundium.com/products/british-sea-power-disco-elysium-black-vinyl-3lp)
+
+---
+
+## 📚 Books
+
+- [Purple Smoke Distortion](https://www.enbook.ro/ro/carte/jojo-s-bizarre-adventure-purple-smoke-distortion_49082528)
+- [The Lost Metal – TOR Hardcover specific edition](https://www.enbook.ro/ro/carte/tor-fall-2022-title-to-be-revealed_38400128)
+- [Alan Bligh – Dance of the Damned](https://www.vinted.ro/items/8927789152-alan-bligh-dance-of-the-damned)
 
 ---
 
